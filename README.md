@@ -3,7 +3,7 @@
 🎓 B.Tech Data Science Student (2022–2026)  
 📍 Hyderabad, India  
 📧 nachikethreddy18@gmail.com  
-🔗 [LinkedIn](www.linkedin.com/in/nachiketh-reddy-c-36a273272)
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/nachiketh-reddy-c-36a273272)
 
 ---
 
